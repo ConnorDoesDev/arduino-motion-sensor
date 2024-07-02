@@ -42,7 +42,9 @@ Real shit
                 @@ .%& ,@@@@@@@@@@@@@@@@@@@@@@@@ &&# .,,,,,,,, ,@               
               /@   .(( ,@@@@@@@@@@@@@@@@@@@@@@@@.(((.,,,,,,,,,, @@              
               *@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@              
-                                                                                
+                    github/connordoesdev
+			 						  linkedin halil ismail (anti dox;contact for links)
+									  ansii 18bit[00]            
                                                                                 
                                                                                 
                                                                                 
